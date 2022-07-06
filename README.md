@@ -60,4 +60,4 @@ I was also happy to practice my precision in building websites according to some
 
 ## Author
 
-Email: filiukbohdan123@gmail.com
+Email: jibola619@gmail.com
